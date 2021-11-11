@@ -1,1 +1,3 @@
-# Personal Informaiton
+# Hengrui Shi
+
+## Personal Information
