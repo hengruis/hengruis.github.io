@@ -1,3 +1,1 @@
-# Hengrui Shi
-
-## Personal Informaiton
+# Personal Informaiton
